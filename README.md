@@ -1,0 +1,2 @@
+# seanmo
+personally private corporation
